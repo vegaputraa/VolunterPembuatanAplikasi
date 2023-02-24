@@ -9,4 +9,3 @@ Repository ini digunakan sebagai sayembara pencarian volunter untuk pembuatan ap
 Berikut daftar Volunter yang diterima:
 
 * Vega Putra Dwi Agni, (linkdln.com/vegaputraa)
-* Putra, (linkdin.com/vegaputraa)
